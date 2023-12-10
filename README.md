@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Alobenya
+- 👀 I do Coding and I'm currently in 3rd year college.
+- 📫 You can reach me through my Gmail @soyalobenya@gmail.com
